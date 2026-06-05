@@ -1,1 +1,0 @@
-# Narz-dzie-do-analizy-video---wykrywanie-modyfikacji-AI
